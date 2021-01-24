@@ -1,5 +1,5 @@
 
-# English NOTE 2021-01-25 with Mason
+# English NOTE 2021-01-24 with Mason
 
 ## 44. How + 형용사/부사
 - How + 형용사/부사 + 의문문
